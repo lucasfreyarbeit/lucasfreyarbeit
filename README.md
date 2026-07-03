@@ -48,5 +48,5 @@ Ich zeichne mich durch eine schnelle Auffassungsgabe, ausgeprägte Eigeninitiati
 
 ## Kontakt
 
-* **E-Mail:** [lucas.frey.arbeit@gmail.com](mailto:lucas.frey.arbeit@gmail.com)
+* **E-Mail:** [kontakt@lucasfrey.de](mailto:kontakt@lucasfrey.de)
 * **Portfolio & Qualifikationsnachweise:** Einen vollständigen Überblick inklusive aller weiterführenden Links finden Sie über den QR-Code auf der zweiten Seite meines Lebenslaufs.
